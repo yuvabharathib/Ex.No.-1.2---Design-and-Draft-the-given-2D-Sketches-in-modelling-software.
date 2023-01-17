@@ -36,6 +36,9 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ ![WhatsApp Image 2023-01-17 at 10 30 30 AM (1)](https://user-images.githubusercontent.com/113497404/212814597-aa3ae471-a5eb-4631-856b-f3ab1abb55c3.jpeg)
+
+ 
  
  
  ## RESULT
